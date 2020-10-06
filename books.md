@@ -1,6 +1,6 @@
 # Books
 
-## All Carlos’s Castaneda books \(12\)
+## Carlos Castaneda \(12\)
 
 * The Teachings of Don Juan: A Yaqui Way of Knowledge \(1968\)
 * A Separate Reality: Further Conversations with Don Juan \(1971\)
