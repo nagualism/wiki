@@ -1,5 +1,6 @@
 # Table of contents
 
 * [Nagualism wiki](README.md)
-* [Books](books/README.md)
-* [Dreaming](dreaming/README.md)
+* [Books](books.md)
+* [Dreaming](dreaming.md)
+
