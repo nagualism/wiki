@@ -10,11 +10,9 @@ Below are quotes from the books
 "As real as what we are doing now?"  
 "If you want to compare things, I can say that it is perhaps more real. In dreaming you have power; you can change things; you may find out countless concealed facts; you can control whatever you want." (3)
 
----
+## Dreaming set up (finding hands)
 
 The trick in learning to set up dreaming is obviously not just to look at things but to sustain the sight of them. Dreaming is real when one has succeeded in bringing everything into focus. Then there is no difference between what you do when you sleep and what you do when you are not sleeping. Do you see what I mean? (3)
-
-## Dreaming set up (finding hands)
 
 He explained that to "set up dreaming" meant to have a concise and pragmatic control over the general situation of a dream, comparable to the control one has over any choice in the desert, such as climbing up a hill or remaining in the shade of a water canyon.  
 ...  
@@ -27,7 +25,7 @@ He explained that to "set up dreaming" meant to have a concise and pragmatic con
 ...  
 "Every time you look at anything in your dreams it changes shape, " he said after a long silence. "The trick in learning to set up dreaming is obviously not just to look at things but to sustain the sight of them. Dreaming is real when one has succeeded in bringing everything into focus. Then there is no difference between what you do when you sleep and what you do when you are not sleeping. Do you see what I mean?" (3)
 
----
+_________________
 
 I told him that I had been recording all the details of my dreams. Since I had begun to practice looking at my hands my dreams had become very compelling and my sense of recall had increased to the point that I could remember minute details. He said that to follow them was a waste of time, because details and vividness were in no way important.  
 "Ordinary dreams get very vivid as soon as you begin to set up dreaming" he said. "That vividness and clarity is a formidable barrier and you are worse off than anyone I have ever met in my life. You have the worst mania. You write down everything you can."  
