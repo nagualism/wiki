@@ -8,7 +8,7 @@
 "As real as what we are doing now?"  
 "If you want to compare things, I can say that it is perhaps more real. In dreaming you have power; you can change things; you may find out countless concealed facts; you can control whatever you want."
 
-> The trick in learning to set up dreaming is obviously not just to look at things but to sustain the sight of them. Dreaming is real when one has succeeded in bringing everything into focus. Then there is no difference between what you do when you sleep and what you do when you are not sleeping. Do you see what I mean?
+The trick in learning to set up dreaming is obviously not just to look at things but to sustain the sight of them. Dreaming is real when one has succeeded in bringing everything into focus. Then there is no difference between what you do when you sleep and what you do when you are not sleeping. Do you see what I mean?
 
 (book 3)
 
