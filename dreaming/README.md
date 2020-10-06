@@ -14,12 +14,12 @@ The trick in learning to set up dreaming is obviously not just to look at things
 
 ## Dreaming set up
 
-He explained that to "set up dreaming" meant to have a concise and pragmatic control over the general situation of a dream, comparable to the control one has over any choice in the desert, such as climbing up a hill or remaining in the shade of a water canyon.
+He explained that to "set up dreaming" meant to have a concise and pragmatic control over the general situation of a dream, comparable to the control one has over any choice in the desert, such as climbing up a hill or remaining in the shade of a water canyon.  
 ...  
 "You must start by doing something very simple, " he said.  
 "Tonight in your dreams you must look at your hands." I laughed out loud. His tone was so factual that it was as if he were telling me to do something commonplace. ...  
 "How can I look at my hands in my dreams?"  
-"Very simple, focus your eyes on them just like this." 
+"Very simple, focus your eyes on them just like this."  
 ...  
 "You can, of course, look at whatever you goddamn please-your toes, or your belly, or your pecker, for that matter. I said your hands because that was the easiest thing for me to look at. Don't think it's a joke. Dreaming is as serious as seeing or dying or any other thing in this awesome, mysterious world.  
 ...  
