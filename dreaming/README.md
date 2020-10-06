@@ -8,7 +8,7 @@
 "As real as what we are doing now?"  
 "If you want to compare things, I can say that it is perhaps more real. In dreaming you have power; you can change things; you may find out countless concealed facts; you can control whatever you want." (3)
 
---
+---
 
 > The trick in learning to set up dreaming is obviously not just to look at things but to sustain the sight of them. Dreaming is real when one has succeeded in bringing everything into focus. Then there is no difference between what you do when you sleep and what you do when you are not sleeping. Do you see what I mean? (3)
 
@@ -29,7 +29,7 @@
 
 > I told him that I had been recording all the details of my dreams. Since I had begun to practice looking at my hands my dreams had become very compelling and my sense of recall had increased to the point that I could remember minute details. He said that to follow them was a waste of time, because details and vividness were in no way important.  
 "Ordinary dreams get very vivid as soon as you begin to set up dreaming" he said. "That vividness and clarity is a formidable barrier and you are worse off than anyone I have ever met in my life. You have the worst mania. You write down everything you can."  
-...
+...  
 "Drop it!" he said imperatively. "It's not helping anything. All you're doing is distracting yourself from the **purpose of dreaming, which is control and power.**"
 He lay down and covered his eyes with his hat and talked without looking at me.  
 "I'm going to remind you of all the techniques you must practice, " he said. "First you must **focus your gaze on your hands as the starting point. Then shift your gaze to other items and look at them in brief glances. Focus your gaze on as many things as you can. Remember that if you only glance briefly the images do not shift. Then go back to your hands.**  
