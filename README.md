@@ -4,5 +4,5 @@ Nagualism is the system of the world description, practices and knowledge develo
 
 ## [Bibliography](books.md)
 
-## [Dreaming](https://github.com/nagualism/wiki/tree/664f26f0445f48d558eaabf863f2f2201f96cc12/dreaming/README.md)
+## [Dreaming](dreaming.md)
 
