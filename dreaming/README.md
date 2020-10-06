@@ -10,9 +10,11 @@ Below are quotes from the books
 "As real as what we are doing now?"  
 "If you want to compare things, I can say that it is perhaps more real. In dreaming you have power; you can change things; you may find out countless concealed facts; you can control whatever you want." (3)
 
-## Dreaming set up (finding hands)
+## Dreaming set up
 
 The trick in learning to set up dreaming is obviously not just to look at things but to sustain the sight of them. Dreaming is real when one has succeeded in bringing everything into focus. Then there is no difference between what you do when you sleep and what you do when you are not sleeping. Do you see what I mean? (3)
+
+### Finding hands
 
 He explained that to "set up dreaming" meant to have a concise and pragmatic control over the general situation of a dream, comparable to the control one has over any choice in the desert, such as climbing up a hill or remaining in the shade of a water canyon.  
 ...  
@@ -25,7 +27,7 @@ He explained that to "set up dreaming" meant to have a concise and pragmatic con
 ...  
 "Every time you look at anything in your dreams it changes shape, " he said after a long silence. "The trick in learning to set up dreaming is obviously not just to look at things but to sustain the sight of them. Dreaming is real when one has succeeded in bringing everything into focus. Then there is no difference between what you do when you sleep and what you do when you are not sleeping. Do you see what I mean?" (3)
 
-######
+### Brief glances
 
 I told him that I had been recording all the details of my dreams. Since I had begun to practice looking at my hands my dreams had become very compelling and my sense of recall had increased to the point that I could remember minute details. He said that to follow them was a waste of time, because details and vividness were in no way important.  
 "Ordinary dreams get very vivid as soon as you begin to set up dreaming" he said. "That vividness and clarity is a formidable barrier and you are worse off than anyone I have ever met in my life. You have the worst mania. You write down everything you can."  
@@ -35,7 +37,7 @@ He lay down and covered his eyes with his hat and talked without looking at me.
 "I'm going to remind you of all the techniques you must practice, " he said. "First you must **focus your gaze on your hands as the starting point. Then shift your gaze to other items and look at them in brief glances. Focus your gaze on as many things as you can. Remember that if you only glance briefly the images do not shift. Then go back to your hands.**  
 "Every time you look at your hands you renew the power needed for dreaming, so in the beginning **don't look at too many things. Four items will suffice every time**. Later on, you may enlarge the scope until you can cover all you want, but as soon as the images begin to shift and you feel you are losing control go back to your hands.  
 
----
+### Dreaming is not-doing
 
 I told him that it had been easy in the beginning, but that at the moment I had ceased altogether to find my hands in my dreams.  
 "When you first started dreaming you were using my personal power, that's why it was easier, " he said. "Now you are empty. But you must keep on trying until you have enough power of your own. You see, dreaming is the not-doing of dreams, and as you progress in your not-doing you will also progress in dreaming. The trick is not to stop looking for your hands, even if you don't believe that what you are doing has any meaning. In fact, as I have told you before, a warrior doesn't need to believe, because as long as he keeps on acting without believing he is not-doing." We looked at each other for a moment.  
@@ -47,7 +49,7 @@ I told him that it had been easy in the beginning, but that at the moment I had 
 "This technique is very difficult. You must perform two tasks: You must will yourself to go to the specific locale; and then, when you have mastered that technique, you have to learn to control the exact time of your traveling."  
 As I wrote down his statements I had the feeling that I was really nuts. I was actually taking down insane instructions, knocking myself out in order to follow them. I experienced a surge of remorse and embarrassment. (3)
 
----
+### Daytime dreaming, pick objects to travel
 
 He asked me about my progress in "dreaming."  
 I had begun to dream about specific places, such as the school and the houses of a few friends.  
@@ -60,7 +62,7 @@ If I were "dreaming" at night, my visions of the locale should be of night time.
 
 ## Headband
 
-> I explained to him how difficult it had become for me to give myself the command to look at my hands. At first it had been relatively easy, perhaps because of the newness of the concept. I had had no trouble at all in reminding myself that I had to look at my hands. But the excitation had worn off and some nights I could not do it at all.  
+I explained to him how difficult it had become for me to give myself the command to look at my hands. At first it had been relatively easy, perhaps because of the newness of the concept. I had had no trouble at all in reminding myself that I had to look at my hands. But the excitation had worn off and some nights I could not do it at all.  
 "You must wear a headband to sleep, " he said. "Getting a headband is a tricky maneuver. I cannot give you one, because you yourself have to make it from scratch. But you cannot make one until you have had a vision of it in dreaming. See what I mean? The headband has to be made according to the specific vision. And it must have a strip across it that fits tightly on top of the head. Or it may very well be like a tight cap. Dreaming is easier when one wears a power object on top of the head. You could wear your hat or put on a cowl, like a friar, and go to sleep, but those items would only cause intense dreams, not dreaming." 
 He was silent for a moment and then proceeded to tell me in a fast barrage of words that the vision of the headband did not have to occur only in "dreaming" but could happen in states of wakefulness and as a result of any far-fetched and totally unrelated event, such as watching the flight of birds, the movement of water, the clouds, and so on. (3)
 
