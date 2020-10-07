@@ -24,5 +24,5 @@ I asked him again about the two mysterious remaining points. He showed me that t
 "Those two points will never yield to 'talking' or to 'reason'," he said. "Only 'will' can handle them. 'Reason' is so removed from them that it is utterly useless to try figuring them out. This is one of the hardest things to realize. After all, the forte of 'reason' is to reason out everything."  
 I asked him if the eight points corresponded to areas or to certain organs in a human being.  
 "They do," he replied dryly and erased the diagram.  
-He touched my head and said that that was the center of 'reason' and 'talking'. The tip of my sternum was the center of 'feeling'. The area below the navel was 'will'. 'Dreaming' was on the right side against the ribs. 'Seeing' on the left. He said that sometimes in some warriors 'seeing' and 'dreaming' were on the right side.
+He touched my head and said that that was the center of 'reason' and 'talking'. The tip of my sternum was the center of 'feeling'. The area below the navel was 'will'. 'Dreaming' was on the right side against the ribs. 'Seeing' on the left. He said that sometimes in some warriors 'seeing' and 'dreaming' were on the right side. \(4\)
 
