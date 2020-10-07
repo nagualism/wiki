@@ -48,7 +48,7 @@ The same thing happens with the tonal. We can say that the tonal of the times is
 "The nagual is the part of us which we do not deal with at all."  
 "I beg your pardon?"  
 "The nagual is the partv of us for which there is no description: no words, no names, no feelings, no knowledge."  
-"That's a contradiction, don Juan. In my opinion, if it can't be felt or described or named, it cannot exist."  
+"That's a contradiction, don Juan. In my opinion, _if it can't be felt or described or named, it cannot exist._"  
 "It's a contradiction only in your opinion. I warned you before, don't knock yourself out trying to understand this."  
 "Would you say that the nagual is the mind?"  
 "No. The mind is an item on the table. The mind is part of the tonal. Let's say that the mind is the chili sauce."  
@@ -66,10 +66,10 @@ Don Juan seemed to be enjoying himself immensely. He giggled and rubbed his hand
 "No. God is also on the table. Let's say that God is the tablecloth."  
 He made a joking gesture of pulling the tablecloth in order to stack it up with the rest of the items he had put in front of me.  
 "But, are you saying that God does not exist?"  
-"No. I didn't say that. All I said was that the nagual was not God because God is an item of our personal tonal and of the tonal of the times. The tonal is, as I've already said, everything we think the world is composed of, including God, of course. God has no more importance other than being a part of the tonal of our time."  
+"No. I didn't say that. All I said was that the nagual was not God because God is an item of our personal tonal and of the tonal of the times. The **tonal is**, as I've already said, **everything we think the world is composed of**, including God, of course. God has no more importance other than being a part of the tonal of our time."  
 "In my understanding, don Juan, God is everything. Aren't we talking about the same thing?"  
 "No. God is only everything you can think of, therefore, properly speaking, he is only another item on the island. God cannot be witnessed at will, he can only be talked about.  
-"The nagual, on the other hand, is at the service of the warrior. It can be witnessed, but it cannot be talked about."  
+"The nagual, on the other hand, is at the service of the warrior. **It can be witnessed, but it cannot be talked about**."  
 "If the nagual is not any of the things I have mentioned," I said, "perhaps you can tell me about its location. Where is it?"  
 Don Juan made a sweeping gesture and pointed to the area beyond the boundaries of the table. He swept his hand, as if with the back of it he were cleaning an imaginary surface that went beyond the edges of the table.  
 "The nagual is there," he said. "There, surrounding the island. The nagual is there, where power hovers.  
