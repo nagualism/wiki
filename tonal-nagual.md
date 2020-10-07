@@ -1,6 +1,6 @@
 # Tonal and Nagual
 
-### Restaurant explanation
+## Restaurant explanation
 
 Now I will tell you the sorcerers' explanation."  
 He paused again, rubbed his cheeks, and played with his tongue inside his mouth as if he were feeling his teeth.  
@@ -12,10 +12,8 @@ He paused again, rubbed his cheeks, and played with his tongue inside his mouth 
 He pounded his chest and his thighs and the side of his ribs.  
 "My tonal is all this."  
 He explained that **every human being had two sides; two separate entities; two counterparts which became operative at the moment of birth. One was called the 'tonal' and the other the 'nagual'**.  
-...
-
-"This time I need your undivided attention since I am going to acquaint you with the tonal and the nagual. Sorcerers have a special and unique interest in that knowledge. I would say that the tonal and the nagual are in the exclusive realm of men of knowledge.
-
+...  
+"This time I need your undivided attention since I am going to acquaint you with the tonal and the nagual. Sorcerers have a special and unique interest in that knowledge. I would say that the tonal and the nagual are in the exclusive realm of men of knowledge.  
 ...  
 "I'm using your own words now," he said. "**The tonal is the social person.**"  
 He laughed, I supposed, at the sight of my bewilderment.  
