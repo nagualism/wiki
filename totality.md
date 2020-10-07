@@ -21,7 +21,10 @@ He looked at me and smiled.
 "And finally, at the outer edge of that world one encounters the other two. **The eight points make the totality of oneself.**"  
 He showed me in the diagram that in essence all the points could be made to connect with one another indirectly.  
 I asked him again about the two mysterious remaining points. He showed me that they were connected only to 'will' and that they were removed from 'feeling', 'dreaming' and 'seeing'; and much more distant from 'talking' and 'reason'. He pointed with his finger to show that they were isolated from the rest and from each other.  
-"Those two points will never yield to 'talking' or to 'reason'," he said. "Only 'will' can handle them. 'Reason' is so removed from them that it is utterly useless to try figuring them out. This is one of the hardest things to realize. After all, the forte of 'reason' is to reason out everything."  
+"Those two points will never yield to 'talking' or to 'reason'," he said. "Only 'will' can handle them. 'Reason' is so removed from them that it is utterly useless to try figuring them out. This is one of the hardest things to realize. After all, the forte of 'reason' is to reason out everything." \(4\)
+
+### 8 points on the body
+
 I asked him if the eight points corresponded to areas or to certain organs in a human being.  
 "They do," he replied dryly and erased the diagram.  
 He touched **my head** and said that that **was the center of 'reason' and 'talking'.** The tip of my **sternum was the center of 'feeling'**. The area **below the navel was 'will'.** **'Dreaming' was on the right side against the ribs. 'Seeing' on the left**. He said that **sometimes in some warriors** **'seeing' and 'dreaming' were on the right side.** \(4\)
