@@ -3,5 +3,5 @@
 * [Nagualism wiki](README.md)
 * [Books](books.md)
 * [Dreaming](dreaming.md)
-* [8 points](8-points.md)
+* [Totality of oneself](8-points.md)
 
